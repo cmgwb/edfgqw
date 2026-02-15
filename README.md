@@ -1,5 +1,5 @@
 # 五一吃瓜网大赛每日聚集地
-**📺最新👀入口：cmgwb.github.io**
+**📺最新👀入口：https://cmgwb.github.io**
 
 
 吓掉魂了。
